@@ -1,0 +1,5 @@
+# Potato soup
+
+## Ingredients
+
+## Directions
